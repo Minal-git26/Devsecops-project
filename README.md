@@ -1,1 +1,1 @@
-<img width="1366" height="728" alt="image" src="https://github.com/user-attachments/assets/d1763072-905a-4e0e-9d74-731bd50098e3" />
+https://mail.google.com/mail/u/0?ui=2&ik=672fb87c5b&attid=0.1&permmsgid=msg-a:r-9081298981595822630&th=198987b84d1224cd&view=att&disp=safe&realattid=f_me6x258w0&zw
